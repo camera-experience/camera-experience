@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Cam or @camera-experience
+- 👀 I’m interested in Photography and IT as a whole
+- 🌱 I’m currently learning IT [CAMTECH, 2 A Levels] and A-Level Photography
+- 💞️ I’m looking to collaborate on Porfolios or juat about anything really
+- 📫 How to reach me: camera.experience21@gmail.com , @CameraExp on Twitter
